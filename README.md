@@ -1,1 +1,0 @@
-# monder-assets
